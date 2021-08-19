@@ -1,6 +1,6 @@
 # *uoooooooooo (うおおおおおおおおおお)🐟*  
 
-Hello everyone🦕 I'm @Taikin12🦜  
+Hello hello🦕 This is @Taikin12🦜  
 - uouo
 - uouo
 - uououo
