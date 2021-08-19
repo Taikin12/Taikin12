@@ -1,6 +1,6 @@
 # *uoooooooooo (うおおおおおおおおおお)🐟*  
 
-Hello hello🦕 This is @Taikin12🦜
+Hello hello🦕 This is *Taikin12*🦜
 - I'm a student studying material science🧱
 - I make keyboards⌨
 - I like ramen🍜
