@@ -1,6 +1,6 @@
 # *uoooooooooo (うおおおおおおおおおお)🐟*  
 
-Hello hello🦕 This is *Taikin12*🦜
+Hello hello🦕 This is *Taikin12*🦜  
 The Electrochemical Noob
 
 
