@@ -1,7 +1,8 @@
 # *uoooooooooo (うおおおおおおおおおお)🐟*  
 
 Hello hello🦕 This is *Taikin12*🦜  
-The Electrochemical Noob
+
+**THE UNTINPO MASTER**
 
 
 <!---
